@@ -1,2 +1,2 @@
 # code-funny
-funny code shit i guess
+if use please credit me
