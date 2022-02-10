@@ -1,2 +1,2 @@
 # code-funny
-if use please credit me
+if use please credit me and use wiki
